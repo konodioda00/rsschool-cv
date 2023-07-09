@@ -1,0 +1,1 @@
+[ff](https://konodioda00.github.io/rsschool-cv/cv)
